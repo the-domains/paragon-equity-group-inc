@@ -1,0 +1,1 @@
+# paragon-equity-group-inc
